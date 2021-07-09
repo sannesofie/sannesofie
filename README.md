@@ -1,3 +1,6 @@
+###     Hi friend...
+
+
 -   🌱  I’m currently learning how to become a  **Front End Developer**
     
 -   👀  I’m looking to gain a lot of new knowledge  **To reach my  goal**
