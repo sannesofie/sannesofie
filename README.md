@@ -1,8 +1,3 @@
-### Hi there 👋
-
-<!--
-**sannesofie/sannesofie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 -   🌱  I’m currently learning how to become a  **Front End Developer**
     
 -   👀  I’m looking to gain a lot of new knowledge  **To reach my  goal**
