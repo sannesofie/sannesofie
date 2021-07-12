@@ -10,4 +10,4 @@
 -   📫  Reach out  **[sannesofie@me.com](mailto:nanu02d8@gmail.com)**
     
 -   ⚡  Fun fact  **Collagen really works** 
--  🛍️   Favourite shop [Colourful Rebel](https://www.colourfulrebel.com)
+-  🛍️   "I shop here" [Colourful Rebel](https://www.colourfulrebel.com)
