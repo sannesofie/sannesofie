@@ -7,7 +7,7 @@
     
 -   💬  Favorite Quote *"Code like a girl"*
     
--   📫  Reach out  **[sannesofie@me.com](mailto:nanu02d8@gmail.com)**
+-   📫  Reach out  **[sannesofie@me.com](mailto:sannesofie@me.com)**
     
--   ⚡  Fun fact  **Collagen really works** 
+-   ⚡  Fun fact:  **I am a spinning Instructor** 
 -  🛍️   "I shop here" [Colourful Rebel](https://www.colourfulrebel.com)
