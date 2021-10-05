@@ -11,3 +11,6 @@
     
 -   ⚡  Fun fact:  **I am a spinning Instructor** 
 -  🛍️   "I shop here" [Colourful Rebel](https://www.colourfulrebel.com)
+
+[![Sanne's GitHub stats](https://github-readme-stats.vercel.app/api?username=sannesofie)](https://github.com/sannesofie/github-readme-stats)
+
