@@ -1,4 +1,7 @@
-![ Alt text](https://i.imgur.com/c3OFxhA.png)  
+![ Alt text](https://i.imgur.com/c3OFxhA.png)
+
+
+
 
 
 -   🌱  I’m currently learning how to become a  **Front End Developer**
